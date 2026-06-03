@@ -1,0 +1,5 @@
+---
+title: "Go deeper"
+---
+
+The Nasca were also known for macro examples of artistic history, such as their extraordinary geoglyphs. The geoglyphs, comprised of figures and geometric shapes, have attracted the attention of both scientists and independent researchers for nearly a century. The Nasca formed these colossal works of artistic expression and ritual practice by removing the dark surface layer of thin, weathered, and oxidized desert varnish to expose the pale, sandy subsoil. These massive symbols have been preserved so well because, outside of El Niño episodes, the area receives very little rainfall. While explanations for the existence of the geoglyphs are not concrete, current hypotheses include astronomical meanings, ritual and ceremonial purposes, landscape markers, and communal construction as a means to reinforce social bonds and religious beliefs.

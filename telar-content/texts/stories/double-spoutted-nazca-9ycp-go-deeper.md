@@ -1,0 +1,5 @@
+---
+title: "Go deeper"
+---
+
+*Chicha* is an endemic aspect of Nasca culture, with early brewing vessels discovered around the same time as this double-spout bridge vessel with the Mythical Spotted Cat, c. 1-450 CE. Consumption of this drink was gendered, with women, including elite women, commonly brewing *chicha* and men drinking it. This is evidenced in diet analyses between the sexes. Even post-conquest, Wari society adopted the Nasca tradition of *chicha* as well as having women brew the drink. Feasting ceremonies in modern day Peru, Bolivia, and Ecuador still maintain *chicha* as a major focus during gatherings. An alternative ritualistic substance that could have been housed in a double-spout bridge vessel, also central to the Nasca, is a number of possible hallucinogenic drinks. Although, the use of hallucinogens was not as commonplace nor pervasive as the consumption of *chicha.*

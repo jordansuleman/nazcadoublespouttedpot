@@ -1,0 +1,5 @@
+---
+title: "Learn more"
+---
+
+The Nasca are renowned for their extraordinary mastery of color, employing a wider range of pigments than any other known pre-colonization culture in the Americas. Their polychrome ceramics are particularly distinctive within the Andes, reflecting both technical innovation and artistic sophistication. Most vessels were manufactured using the coiling method, a technique where a vessel is built up gradually from long ropes of clay. Instead of shaping the pot on a wheel, the potter stacked these coils in layers and then smoothed and compressed the layers together to create the walls of the vessel. After coiling, the vessels were coated with mineral-based slips derived from pigments such as manganese for black and iron oxide for red. The ceramics were then fired and burnished to produce their characteristic glossy finish. Unlike earlier resin-painting techniques, Nasca potters' use of mineral slips before firing helped preserve the vibrancy of painted designs, resulting in some of the most vibrant and enduring ceramic traditions of the ancient Americas.
